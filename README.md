@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Imtony19
+- 👋 Hi, I’m 0xconan
 - 👀 I’m interested in Crypto
 - 🌱 I’m currently learning Trading TA
